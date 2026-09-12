@@ -1,1 +1,1 @@
-<h1>Japanese Women Leadership Institutew</h1>
+<h1>Japanese Women Leadership Institute</h1>
